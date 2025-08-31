@@ -1,4 +1,4 @@
-# 👋 Hi, I’m Drey Idan  
+# 👋 Hi, I’m Dharmy Eralimad
 
 🚀 **Aspiring Computer Scientist | Python Enthusiast | Future Trader in Tech**  
 
